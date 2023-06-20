@@ -13,8 +13,6 @@
 
 ✒️ No meu tempo livre gosto de assistir filmes e séries dos mais variados gêneros, ler livros que narram fatos hsitóricos ou distopias futurísticas e praticar esportes;
 
-📚 Lendo: "Bruxas da Noite: A História não Contada do Regimento Aéreo Feminino Russo Durante a Segunda Guerra Mundial", por Ritanna Armeni.
-
 
 ### Eu já trabalhei com... 🔧
 
