@@ -7,8 +7,6 @@
 
 🎓 Sou estudante de Ciência da Computação;
 
-👩‍💻 Open to work;
-
 🔎 Também sou curioso sobre tecnologias emergentes e ficção científica;
 
 ✒️ No meu tempo livre gosto de assistir filmes e séries dos mais variados gêneros, ler livros que narram fatos hsitóricos ou distopias futurísticas e praticar esportes;
